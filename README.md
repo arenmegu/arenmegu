@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently studying CS @ Université Paris Cité<br>🌱 I’m currently learning cybersecurity<br>💬 Contact me by mail : mehdi.chater@outlook.com
+🔭 I'm currently studying CS @ Université Paris Cité<br>🌱 I’m currently learning risk & compliance tech<br>💬 Contact me by mail : mehdi.chater@outlook.com
 
 
 ## 🌐 Socials:
