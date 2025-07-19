@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently studying CS @ Université Paris Cité<br>🌱 I’m currently learning cybersecurity<br>💬 Ask me questions on discord : arenmegu
+🔭 I'm currently studying CS @ Université Paris Cité<br>🌱 I’m currently learning cybersecurity<br>💬 Contact me by mail : mehdi.chater@outlook.com
 
 
 ## 🌐 Socials:
